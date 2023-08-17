@@ -2,6 +2,6 @@
 
 - Não sofra, jogue Sonic. 💙
 
-### um fã de Sonic The Hegdehog na área! 🌻
+### Um fã de Sonic The Hegdehog na área! 🌻
 
-![](https://tenor.com/pt-BR/view/sonic-the-hedgehog-sonic-sprite-dance-dancing-gif-25699134)
+![sonic-the-hedgehog-sonic](https://github.com/felixSTH/felixsth/assets/142517628/ed473076-c1d3-4c60-b17e-9667897fae9d)
